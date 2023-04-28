@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @temirlanmukatayev
-- 👀 I’m interested in interesting people and adventures
+- 👀 I’m interested in amazing people and adventures
 - 🌱 I’m currently learning development of useful applications to solve real problems
 - 💞️ I’m looking to collaborate on interesting and meaningful projects
 - 📫 How to reach me @temirlanmukatayev
